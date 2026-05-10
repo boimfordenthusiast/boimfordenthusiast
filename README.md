@@ -33,7 +33,8 @@ ${\textsf{\color{#1E5F16} '☆ I've been playing pony town for 3}}$
 ${\textsf{\color{#1E5F16}years!}}$
 
 ${\textsf{\color{#1E5F16}'★ I'm not a roleplayer.I don't join roleplays}}$
-${\textsf{\color{#1E5F16}or participate in them unless and ONLY unless I am close with somebody}}$ 
+${\textsf{\color{#1E5F16}or participate in them unless and ONLY unless}}$
+${\textsf{\color{#1E5F16}I am close with somebody}}$ 
 
 ${\textsf{\color{#1E5F16} '☆ Tone tags aren't necessary but very}}$
 ${\textsf{\color{#1E5F16}appreciated!}}$
