@@ -15,7 +15,7 @@ EW and lwd IRLs/Fictionkins INT PLEASE!11!
 <details align="center"><summary> 🥤 – About me </summary>
 
 ⭐️
-${\textsf{\color{#1E5F16} '★ I am Bigender, and go by any pronouns including neos }}$
+${\textsf{\color{#1E5F16} '★ I am Bigender and Pan, and go by any pronouns including neos }}$
 
 ${\textsf{\color{#1E5F16} '☆ I am an alterhuman and IRL, please do}}$
 ${\textsf{\color{#1E5F16}not hesitate to ask what my kins are :D }}$
