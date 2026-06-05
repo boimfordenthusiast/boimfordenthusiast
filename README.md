@@ -73,8 +73,11 @@ ${\textsf{\color{#1E5F16}interested in is mentioned.}}$
 <details align="center"><summary> 🐾 – Fandoms </summary> 
 🐾
   
-**Bolded=current spinterest**
+**Bolded=current interest/fixation**
 
+**Umbert Actually!**
+
+The Labyrinth 
   
 **Star Trek: Lower Decks**
 
@@ -122,29 +125,9 @@ The Backwards House
 
 Henry Stickmin 
 
+SML (fans iwvec, supporters of the crew DNI)
 
-
-**Not associated with anymore/lost interest**
-
-Osmosis Jones (haven't watched the movie since 2023)
-
-The Lorax (THOSE preppies got to it)
-
-Alphabet/Number Lore (it's a brainrotted logo kid/adult fandom now)
-
-Sprunki (take a WIIILD guess)
-
-Dandy's World (I don't like the fanbase and I never played the game)
-
-Adopt Me (again, preppies got to it and ruined it for me.)
-
-ASDFMovie (I had an experience with someone in it [nothing too bad])
-
-Interland (It reminds me of my past relationship with oomf)
-
-Wonder (does this even have a fandom)
-
-SML (the humor nowadays is not it. The more I watch the more I despise it.)
+Osmosis Jones
 
 
 <br></details> <p align="left">
