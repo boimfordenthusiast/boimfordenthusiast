@@ -147,6 +147,43 @@ Osmosis Jones
 <br></details> <p align="left">
 </div>
 
+<details align="center"><summary> 🚫 - DNI/IWC </summary>
+
+Pro/Darkshippers
+
+MAPs
+
+Supporter of anyone problematic
+
+Reverse Peds
+
+Zoos
+
+House of Puso fans (ESPECIALLY if you find the feet thing funny)
+
+AI bros (this is moreso an iwc because i happen to be friends with some..but i am too afraid to block)
+
+Anyone I know IRL (UNLESS we are family.)
+Vivzieslop fan
+
+-13
+
+Ragebait accounts
+
+People who joke about dark topics 
+
+harrasing doubles
+
+SOME Christians
+
+Basic people who make fun of anything
+
+BASICALLY anything on the basic DNI criteria
+  
+</div>
+
+
+  
 ![178](https://github.com/user-attachments/assets/7e84790e-81e5-4486-9d66-685d7ee182b4)
 ![203](https://github.com/user-attachments/assets/be7a83f0-dc9e-4553-8c6e-01285b12066e)
 
