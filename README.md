@@ -15,42 +15,43 @@ EW and lwd IRLs/Fictionkins INT PLEASE!11!
 <details align="center"><summary> 🥤 – About me </summary>
 
 ⭐️
-${\textsf{\color{#1E5F16} '★ I am Bigender and Pan, and go by any pronouns including neos }}$
+${\textsf{\color{#9ea8f6} '★ I am Bigender and Pan, and go by any}}$ 
+${\textsf{\color{#9ea8f6} pronouns including neos }}$
 
-${\textsf{\color{#1E5F16} '☆ I am an alterhuman and IRL, please do}}$
-${\textsf{\color{#1E5F16}not hesitate to ask what my kins are :D }}$
+${\textsf{\color{#f5d23d} '☆ I am an alterhuman and IRL, please do}}$
+${\textsf{\color{#f5d23d}not hesitate to ask what my kins are :D }}$
 
-${\textsf{\color{#1E5F16} '★ I have AuDHD (was diagnosed}}$
-${\textsf{\color{#1E5F16}by a doctor), self-diagnosed people iwc}}$
+${\textsf{\color{#9ea8f6} '★ I have AuDHD (was diagnosed}}$
+${\textsf{\color{#9ea8f6}by a doctor), self-diagnosed people iwc}}$
 
-${\textsf{\color{#1E5F16} '☆ I am more than likely offtab or }}$
-${\textsf{\color{#1E5F16}making skins, whispering is appreciated! }}$
+${\textsf{\color{#f5d23d} '☆ I am more than likely offtab or }}$
+${\textsf{\color{#f5d23d}making skins, whispering is appreciated! }}$
 
-${\textsf{\color{#1E5F16} '★ I am above 13 but below 26, that's all}}$
-${\textsf{\color{#1E5F16}i will tell you}}$
+${\textsf{\color{#9ea8f6} '★ I am above 13 but below 26, that's all}}$
+${\textsf{\color{#9ea8f6}i will tell you}}$
 
-${\textsf{\color{#1E5F16} '☆ I've been playing pony town for 3}}$
-${\textsf{\color{#1E5F16}years!}}$
+${\textsf{\color{#f5d23d} '☆ I've been playing pony town for 3}}$
+${\textsf{\color{#f5d23d}years!}}$
 
-${\textsf{\color{#1E5F16}'★ I'm not a roleplayer.I don't join roleplays}}$
-${\textsf{\color{#1E5F16}or participate in them unless and ONLY unless}}$
-${\textsf{\color{#1E5F16}I am close with somebody}}$ 
+${\textsf{\color{#9ea8f6}'★ I'm not a roleplayer.I don't join roleplays}}$
+${\textsf{\color{#9ea8f6}or participate in them unless and ONLY unless}}$
+${\textsf{\color{#9ea8f6}I am close with somebody}}$ 
 
-${\textsf{\color{#1E5F16} '☆ Tone tags aren't necessary but very}}$
-${\textsf{\color{#1E5F16}appreciated!}}$
+${\textsf{\color{#f5d23d} '☆ Tone tags aren't necessary but very}}$
+${\textsf{\color{#f5d23d}appreciated!}}$
 
-${\textsf{\color{#1E5F16} '★ I ship lots of ships, but my main ones}}$
-${\textsf{\color{#1E5F16}are Brutherford, Goodbadge, Kirfluff,}}$
-${\textsf{\color{#1E5F16}BaconCola, Gamsol, and Ranler}}$
+${\textsf{\color{#9ea8f6} '★ I ship lots of ships, but my main ones}}$
+${\textsf{\color{#9ea8f6}are Brutherford, Goodbadge, Kirfluff,}}$
+${\textsf{\color{#9ea8f6}BaconCola, Gamsol, and Ranler}}$
 
-${\textsf{\color{#1E5F16} '☆ If I hide/block you, I had a reason to. }}$
-${\textsf{\color{#1E5F16} I don't block for no reason}}$<br>
+${\textsf{\color{#f5d23d} '☆ If I hide/block you, I had a reason to. }}$
+${\textsf{\color{#f5d23d} I don't block for no reason}}$<br>
 
-${\textsf{\color{#1E5F16} '★ I have attatchment issues and tend to obbsess over someone and talk to them alot.}}$
-${\textsf{\color{#1E5F16}i'm also very talkative and energetic with my}}$
-${\textsf{\color{#1E5F16}speeches when i'm}}$
-${\textsf{\color{#1E5F16}with someone I love or something i'm}}$
-${\textsf{\color{#1E5F16}interested in is mentioned.}}$
+${\textsf{\color{#9ea8f6} '★ I have attatchment issues and tend to obbsess over someone and talk to them alot.}}$
+${\textsf{\color{#9ea8f6}i'm also very talkative and energetic with my}}$
+${\textsf{\color{#9ea8f6}speeches when i'm}}$
+${\textsf{\color{#9ea8f6}with someone I love or something i'm}}$
+${\textsf{\color{#9ea8f6}interested in is mentioned.}}$
 <br></details> <p align="left">
 </div>
 
