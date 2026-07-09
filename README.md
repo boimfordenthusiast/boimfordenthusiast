@@ -176,12 +176,12 @@ SOME Christians
 Basic people who make fun of anything
 
 BASICALLY anything on the basic DNI criteria
-  
+<br></details> <p align="left">
 </div>
 
 
-  
-![178](https://github.com/user-attachments/assets/7e84790e-81e5-4486-9d66-685d7ee182b4)
-![203](https://github.com/user-attachments/assets/be7a83f0-dc9e-4553-8c6e-01285b12066e)
+
+
+![2808](https://github.com/user-attachments/assets/309f3f29-7650-4834-9b8c-3ff7fdb204ff)
 
 
