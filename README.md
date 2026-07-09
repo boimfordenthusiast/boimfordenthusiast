@@ -5,6 +5,7 @@ Boimler/Tendi kins INT PLEASE!11!
 ![2798](https://github.com/user-attachments/assets/feb3490b-4474-428c-bec9-09038b56ae9f)
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Bungee&pause=1000&color=f5d23d&width=435&lines=For+human%2C+grossly+underqualified%2C;For+K-9%2C+grossly+overqualified.)](https://git.io/typing-svg)
+<img width="1021" height="169" alt="2800" src="https://github.com/user-attachments/assets/9278ca9c-5f98-4908-a5a6-e178eaa2a319" />
 
 
 <details align="center"><summary> 🥤 – About me </summary>
