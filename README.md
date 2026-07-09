@@ -8,7 +8,7 @@ Boimler/Tendi kins INT PLEASE!11!
 <img width="1021" height="169" alt="2800" src="https://github.com/user-attachments/assets/9278ca9c-5f98-4908-a5a6-e178eaa2a319" />
 
 
-<details align="center"><summary> 🥤 – About me </summary>
+<details align="center"><summary> 👾 – About me </summary>
 
 ⭐️
 
@@ -68,10 +68,12 @@ ${\textsf{\color{#9ea8f6}interested in is mentioned.}}$
 <br></details> <p align="left">
 </div>
 
-<details align="center"><summary> 🐾 – Fandoms </summary> 
+<details align="center"><summary> 🌼 – Fandoms </summary> 
 🐾
   
 **Bolded=current interest/fixation**
+
+**Animal Hospital**
 
 **Umbert Actually!**
 
@@ -131,7 +133,7 @@ Osmosis Jones
 <br></details> <p align="left">
 </div>
 
-<details align="center"><summary> 💚 – Moots to follow </summary> 
+<details align="center"><summary> 💛 – Moots to follow </summary> 
   ❤️
 
 @lovinglymythic on Tumblr and Tiktok
@@ -180,6 +182,7 @@ BASICALLY anything on the basic DNI criteria
 <br></details> <p align="left">
 </div>
 
+<img width="1024" height="170" alt="2799" src="https://github.com/user-attachments/assets/3c140768-004e-41b3-8a07-fdfc8a62874c" />
 
 
 
