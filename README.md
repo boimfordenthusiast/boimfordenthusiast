@@ -1,12 +1,14 @@
+![2836](https://github.com/user-attachments/assets/2b9418c6-550e-4ca2-84e3-345d4744b1eb)
+![Typing SVG](https://readme-typing-svg.demolab.com?font=Geist+Pixel&size=30&pause=1000&color=F7CB45&width=435&lines=Hey%2C+nice+to+meet+you!)
+<img width="1024" height="170" alt="2799" src="https://github.com/user-attachments/assets/d320a6d9-f9c0-4021-9d86-720683dc0900" />
+
 ![2788](https://github.com/user-attachments/assets/8c0f18f7-ccc8-4846-baca-76a61d182752) 
 ![](https://komarev.com/ghpvc/?username=rutherfordsimplant&label=awesome+people&color=f5d23d)
 
 Boimler/Tendi kins INT PLEASE!11!
 ![2798](https://github.com/user-attachments/assets/feb3490b-4474-428c-bec9-09038b56ae9f)
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bungee&pause=1000&color=f5d23d&width=435&lines=For+human%2C+grossly+underqualified%2C;For+K-9%2C+grossly+overqualified.)](https://git.io/typing-svg)
 <img width="1021" height="169" alt="2800" src="https://github.com/user-attachments/assets/9278ca9c-5f98-4908-a5a6-e178eaa2a319" />
-
 
 <details align="center"><summary> 👾 – About me </summary>
 
@@ -183,10 +185,10 @@ BASICALLY anything on the basic DNI criteria
 <br></details> <p align="left">
 </div>
 
+
 <img width="1024" height="170" alt="2799" src="https://github.com/user-attachments/assets/3c140768-004e-41b3-8a07-fdfc8a62874c" />
 
-
-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Geist+Pixel&size=30&pause=1000&color=F7CB45&width=435&lines=Welcome+to+the+crew!+%E2%99%A1)](https://git.io/typing-svg)
 ![2808](https://github.com/user-attachments/assets/309f3f29-7650-4834-9b8c-3ff7fdb204ff)
 
 
