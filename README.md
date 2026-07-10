@@ -164,6 +164,7 @@ House of Puso fans (ESPECIALLY if you find the feet thing funny)
 AI bros (this is moreso an iwc because i happen to be friends with some..but i am too afraid to block)
 
 Anyone I know IRL (UNLESS we are family.)
+
 Vivzieslop fan
 
 -13
